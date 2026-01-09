@@ -8,7 +8,7 @@
 ![visitors](https://vbr.nathanchung.dev/badge?page_id=thisisrenan&color=00cf00)
 
 ##  𝚂𝚘𝚋𝚛𝚎 𝚖𝚒𝚖
-- 🖥 𝙴𝚜𝚝𝚞𝚍𝚊𝚗𝚝𝚎 𝙳𝚎 𝙲𝚒𝚎𝚗𝚌𝚒𝚊 𝚍𝚊 𝙲𝚘𝚖𝚙𝚞𝚝𝚊𝚌̧𝚊̃𝚘 𝚗𝚊 𝚄𝚃𝙵𝙿𝚁-𝙲𝙼
+- 🖥 Gosto de Resolver Problemas
 
 ##  𝙻𝚒𝚗𝚐𝚞𝚊𝚐𝚎𝚗𝚜 𝚍𝚎 𝚙𝚛𝚘𝚐𝚛𝚊𝚖𝚊çã𝚘
 <div>
